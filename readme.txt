@@ -3,3 +3,5 @@ Writen by wym.
 Jammie Lannister
 Hear me roar!
 Tyrion Lannister
+Ayra Stack
+Winter is coming.
