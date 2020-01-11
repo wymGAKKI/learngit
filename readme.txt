@@ -7,3 +7,5 @@ Ayra Stack
 Winter is coming.
 Fire and blood.
 The north remembers.
+As high as honor.
+Home.Duty.Honor.
